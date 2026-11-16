@@ -3,7 +3,8 @@ Meow
 
 
 
-<img width="1200" height="675" alt="IMG_3188" src="https://github.com/user-attachments/assets/7aa39428-b7b2-43f5-8c1a-146aa23cd2d4" />
+<img width="1200" height="430" alt="IMG_3188" src="https://github.com/user-attachments/assets/86961a46-9774-457a-904e-1684020f9a95" />
+
 
 𝐇𝐞𝐥𝐥𝐨! 𝐈'𝐦 𝐀𝐬𝐩𝐞𝐧 , 𝐁𝐫𝐲𝐚𝐧 𝐨𝐫 𝐀𝐬𝐡𝐭𝐨𝐧!
 
