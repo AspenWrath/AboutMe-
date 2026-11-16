@@ -42,5 +42,5 @@ $\color{#68007B}{My}$ $\color{#68007B}{Twotime}$ $\color{#68007B}{(„ಡωಡ�
 $\color{#960099}{That's}$ $\color{#960099}{about}$ $\color{#960099}{it!}$ 
 
 
+<img width="796" height="194" alt="Untitled755_20261116124220" src="https://github.com/user-attachments/assets/d39c66d2-ca86-47e0-abdb-e5be6699a788" />
 
-<img width="796" height="194" alt="Untitled755_20261116124128" src="https://github.com/user-attachments/assets/142506d1-ca6e-4802-8813-0800dd4692c2" />
