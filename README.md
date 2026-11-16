@@ -33,7 +33,7 @@ $\color{#3E0F78}{I}$ $\color{#3E0F78}{don't}$ $\color{#3E0F78}{mind}$ $\color{#3
 $\color{#3E0F78}{(Just}$ $\color{#3E0F78}{be}$ $\color{#3E0F78}{respectful,}$ $\color{#3E0F78}{I}$ $\color{#3E0F78}{don't}$ $\color{#3E0F78}{like}$
 $\color{#3E0F78}{like}$ $\color{#3E0F78}{Randoms}$ $\color{#3E0F78}{Acting}$ $\color{#3E0F78}{weird/freaky}$ $\color{#3E0F78}{with}$ $\color{#3E0F78}{Me.}$ $\color{#3E0F78}{｡•́︿•̀｡)}$ 
 
-$\color{#9B0040}{I}$ $\color{#9B0040}{am}$ $\color{#9B0040}{TAKEN.}$ 
+$\color{#AD005B}{I}$ $\color{#AD005B}{am}$ $\color{#AD005B}{TAKEN.}$ 
 
 
-$\color{#EBA4FF}{That's}$ $\color{#EBA4FF}{about}$ $\color{#EBA4FF}{it!}$ 
+$\color{#68007B}{That's}$ $\color{#68007B}{about}$ $\color{#68007B}{it!}$ 
