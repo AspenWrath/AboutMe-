@@ -35,5 +35,8 @@ $\color{#3E0F78}{like}$ $\color{#3E0F78}{Randoms}$ $\color{#3E0F78}{Acting}$ $\c
 
 $\color{#4D005B}{I}$ $\color{#4D005B}{am}$ $\color{#4D005B}{TAKEN.}$ 
 
+$\color{#68007B}{I}$ $\color{#68007B}{💜}$
+$\color{#68007B}{My}$ $\color{#68007B}{Twotime}$
 
-$\color{#68007B}{That's}$ $\color{#68007B}{about}$ $\color{#68007B}{it!}$ 
+
+$\color{#960099}{That's}$ $\color{#960099}{about}$ $\color{#960099}{it!}$ 
