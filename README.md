@@ -7,7 +7,8 @@ Meow
 
 $\color{#EBA4FF}{Hello!}$
 
-$\color{#AB65BD}{My preferred names are Ashton , Aspen , Brya!}$
+$\color{#AB65BD}{My}$ $\color{#AB65BD}{Preferred}$ $\color{#AB65BD}{Names}$
+$\color{#AB65BD}{Are}$ $\color{#AB65BD}{Aspen/Azure}$ $\color{#AB65BD}{,}$ $\color{#AB65BD}{Bryan}$ $\color{#AB65BD}{or}$ $\color{#AB65BD}{Ashton!}$
 
 
 𝐀𝐬𝐩𝐞𝐧 / 𝐀𝐳𝐮𝐫𝐞 𝐢𝐬 𝐦𝐲 𝐜𝐨𝐦𝐟𝐨𝐫𝐭 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫!
