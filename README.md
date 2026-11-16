@@ -6,7 +6,7 @@ Meow
 <img width="1200" height="430" alt="IMG_3188" src="https://github.com/user-attachments/assets/86961a46-9774-457a-904e-1684020f9a95" />
 
 
-$\color{#AB65BD}{𝐇𝐞𝐥𝐥𝐨!  𝐈'𝐦   𝐀𝐬𝐩𝐞𝐧 , 𝐁𝐫𝐲𝐚𝐧   𝐨𝐫   𝐀𝐬𝐡𝐭𝐨𝐧!}$
+$\color{#AB65BD}{𝐇𝐞𝐥𝐥𝐨! 𝐈 𝐚𝐦 𝐀𝐬𝐩𝐞𝐧 , 𝐁𝐫𝐲𝐚𝐧 𝐨𝐫 𝐀𝐬𝐡𝐭𝐨𝐧!}$
 
 
 𝐀𝐬𝐩𝐞𝐧 / 𝐀𝐳𝐮𝐫𝐞 𝐢𝐬 𝐦𝐲 𝐜𝐨𝐦𝐟𝐨𝐫𝐭 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫!
