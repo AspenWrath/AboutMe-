@@ -22,29 +22,9 @@ $\color{#501F8B}{I'm}$ $\color{#501F8B}{very}$ $\color{#501F8B}{Socially}$ $\col
 
 $\color{#3E0F78}{I}$ $\color{#3E0F78}{don't}$ $\color{#3E0F78}{mind}$ $\color{#3E0F78}{if}$ $\color{#3E0F78}{Ships}$ $\color{#3E0F78}{INT!}$
 $\color{#3E0F78}{(Just}$ $\color{#3E0F78}{be}$ $\color{#3E0F78}{respectful,}$ $\color{#3E0F78}{I}$ $\color{#3E0F78}{don't}$ $\color{#3E0F78}{like}$
-$\color{#3E0F78}{like}$ $\color{#3E0F78}{Randoms}$ $\color{#3E0F78}{Acting}$ $\color{#3E0F78}{weird/freaky}$ $\color{#3E0F78}{with}$ $\color{#3E0F78}{Me.)}$
+$\color{#3E0F78}{like}$ $\color{#3E0F78}{Randoms}$ $\color{#3E0F78}{Acting}$ $\color{#3E0F78}{weird/freaky}$ $\color{#3E0F78}{with}$ $\color{#3E0F78}{Me.}$ $\color{#3E0F78}{｡•́︿•̀｡)}$ 
+
+$\color{#9B0040}{I}$ $\color{#9B0040}{am}$ $\color{#9B0040}{TAKEN.}$ 
 
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-(｡•́︿•̀｡)
-
-𝐈 𝐚𝐦 𝐓𝐀𝐊𝐄𝐍
-~
-𝐈 𝐥𝐨𝐯𝐞 𝐦𝐲 𝐓𝐰𝐨 𝐭𝐢𝐦𝐞 💜
